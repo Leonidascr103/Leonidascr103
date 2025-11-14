@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently seeking new opportunities and excited to dive into innovative projects as a Computer Engineer with a strong focus on Machine Learning and AI 🤖💡.<br><br>I'm highly collaborative, committed, and a fast learner 🚀—always eager to take on new challenges and contribute to meaningful solutions.<br><br>Native Spanish speaker based in Spain 🇪🇸, open to remote or international opportunities 🌍.
+I'm currently seeking new opportunities and excited to dive into innovative projects as a Computer Engineer with a strong focus on Machine Learning and AI 🤖💡.<br><br>I'm highly collaborative, committed, and a fast learner 🚀always eager to take on new challenges and contribute to meaningful solutions.<br><br>Native Spanish speaker based in Spain 🇪🇸, open to remote or international opportunities 🌍.
 
 
 ## 🌐 Socials:
